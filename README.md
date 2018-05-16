@@ -1,1 +1,10 @@
-# ff1
+http://www.3960w.com
+http://www.3960w.net
+http://www.3taow.com
+http://www.3y100.com
+http://www.44sna.net
+http://www.4onix.com
+http://www.504ss.com
+http://www.51byh.com
+http://www.5222i.com
+http://www.522hn.com
